@@ -10,6 +10,9 @@
   <i><b>"Will you join us in this… eternal Parade?"</i></b>
   
   ∘₊✧────────────────────✧₊∘  
+ 
+<img width="600px" src="https://file.garden/ZRW3jvKULjLI59UB/Github%20decor/fiends.png">
+  
 
 Names that we accept: \
 ✦ Lost Kin ✦ \
