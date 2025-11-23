@@ -17,7 +17,7 @@
 Names that we accept: \
 ✦ Lost Kin ✦ \
 ✧ Lumu ✧  \
-✦ The name of the character / cosplay we're sitting in ✦
+✦ The name of the character / cosplay we're sitting in ✦ \
 <b>{!} Please call anyone with [FICT] in their name by the name written! Those are fictives! {!}</b> \
 ∘₊✧────────────✧₊∘ \
 ✦ They/Them ✦ \
