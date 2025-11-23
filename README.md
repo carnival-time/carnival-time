@@ -1,4 +1,4 @@
-<h2 align="center"><i><b>"Will you join us in this… eternal Parade?"</i></b> </h2>
+<h2 align="center"><i><b>❝ Will you join us in this… eternal Parade? ❞</i></b> </h2>
 
 <h3 align="center"> Made for Pony Town info!</h3>
 <h3 align="center"> !! PLEASE DO NOT EVER COPY OR GET HEAVY INSPO FROM MY SKINS !! </h3>
@@ -9,8 +9,8 @@
   
   ┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━༻❁༺━━━━━━━━━━━━━━━━━━━━━━━━━━━━┓
   
-<i><b>"The Family will be well-cared for. \
-… After all, the onus always fell on me to provide for what you abandoned."</i></b>
+<i><b>❝ The Family will be well-cared for. \
+… After all, the onus always fell on me to provide for what you abandoned. ❞</i></b>
   
   ∘₊✧───────────────────────────────✧₊∘  
  
@@ -25,7 +25,7 @@ Names that we accept: \
 ∘₊✧────────────✧₊∘ \
 ✦ They/Them ✦ \
 ∘₊✧────────────✧₊∘ \
-Limbus sourcemates please do interact, Sancho would love to say hi!
+Limbus sourcemates please do interact, Sancho and Outis are happy to meet others!
 
 •────────────⋅☾ ☽⋅────────────•
 
@@ -39,6 +39,7 @@ _Not a definitive list_ \
 ✦ Splatoon \
 ✦ Monster Hunter \
 ✦ Project Moon (mainly Limbus Company atm) \
+✦ Baldur's Gate 3 / D&D in general \
 ✦ Crypt of the Necrodancer/Cadence of Hyrule \
 ✦ Spiritfarer \
 ✦ Rain World \
@@ -46,15 +47,16 @@ _Not a definitive list_ \
 
 •────────────⋅☾ ☽⋅────────────•
 
+<b><i> ❝ Welcome. I'll show you what it means to really 'dress up'… \
+You may look forward to it. ❞ </b></i> \
 <img width="500px" src="https://file.garden/ZRW3jvKULjLI59UB/Github%20decor/macaron.png">
 
 •────────────⋅☾ ☽⋅────────────•
 
 **Where are we usually?** \
 _Areas may vary depending on the mood_ \
-✦ Usually in 18+ by default \
-✦ In spawn \
-✦ Bench area underneath the market \
+✦ Usually in 18+ by default unless friends are in Safe Server \
+✦ Left of spawn. May differ if our default area is crowded \
 ∘₊✧────────────✧₊∘ \
 **Statuses** \
 **Online** - Usually used by certain headmates. Mostly willing to talk \
@@ -63,6 +65,8 @@ _Areas may vary depending on the mood_ \
 
 •────────────⋅☾ ☽⋅────────────•
 
+<b><i> ❝ Though I may forgive them in Father's stead... \
+he will not find the same clemency within him for my absolution. ❞ </b></i> \
 <img width="500px" src="https://file.garden/ZRW3jvKULjLI59UB/Github%20decor/popcorn.png">
 
 •────────────⋅☾ ☽⋅────────────•
@@ -71,10 +75,10 @@ _Areas may vary depending on the mood_ \
 ✦ If I don't reply, I'm most likely offtab! Please just drop me a whisper and/or sit in front of me if you'd like to talk. I check back in fairly often but may forget at times. \
 ✦ Kisses and cuddles from us are NEVER romantic. I'm a very big enjoyer of platonic affection, but please do tell me if it's uncomfortable! \
 ✦ Feel free to just shorten calling my name Kin, call me Lumu if that's easier to remember \
-✦ Just dont be weird or something and we're fine \
-✦ We don't do RP on the game \
+✦ Just dont be creepy or something and we're fine \
+✦ We don't do serious RP on the game, but we Will commit to the character bit as desired \
 ✦ We freely hide people, no DNI list other than the basic shit and stuff below \
-✦ If you still actively engage with Harry Potter or JKR, as such we request no cosplays or fans of it interact. Introjects are completely ok \
+✦ If you still actively engage with Harry Potter or JKR, we request no cosplays or fans of it interact. System introjects/fictives are completely ok \
 ✦ Don't bring syscourse to us we don't care \
 
   ┏━━━━━━━━━━━༻❁༺━━━━━━━━━━━┓ \
