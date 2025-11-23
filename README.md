@@ -1,15 +1,18 @@
-<h2 align="center">Mostly just for Pony Town! </h2>
+<h2 align="center"><i><b>"Will you join us in this… eternal Parade?"</i></b> </h2>
+
+<h3 align="center"> Made for Pony Town info!</h3>
 <h3 align="center"> !! PLEASE DO NOT EVER COPY OR GET HEAVY INSPO FROM MY SKINS !! </h3>
 
 <div align="center">
 
 <p> <img src="https://file.garden/ZRW3jvKULjLI59UB/Github%20decor/banner"> </p>
   
-  ┏━━━━━━━━━━━━━━━━━━༻❁༺━━━━━━━━━━━━━━━━━━┓
+  ┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━༻❁༺━━━━━━━━━━━━━━━━━━━━━━━━━━━━┓
   
-  <i><b>"Will you join us in this… eternal Parade?"</i></b>
+<i><b>"The Family will be well-cared for. \
+… After all, the onus always fell on me to provide for what you abandoned."</i></b>
   
-  ∘₊✧────────────────────✧₊∘  
+  ∘₊✧───────────────────────────────✧₊∘  
  
 <img width="600px" src="https://file.garden/ZRW3jvKULjLI59UB/Github%20decor/fiends.png">
   
