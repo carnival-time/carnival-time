@@ -85,3 +85,8 @@ he will not find the same clemency within him for my absolution. ❞ </b></i> \
 **Graphic Credits** \
 [x](https://www.tumblr.com/pearlieprincess/777663720064221184) | [x](https://www.tumblr.com/pngblog/793166788564271104) | [x](https://www.tumblr.com/pngblog/800044141655588864) \
 ∘₊✧──────────────✧₊∘
+
+<img width="500px" src="https://file.garden/ZRW3jvKULjLI59UB/Github%20decor/thank"> \
+Art is by us!
+
+</div>
