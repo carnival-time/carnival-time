@@ -40,6 +40,7 @@ _Not a definitive list_ \
 ✦ Monster Hunter \
 ✦ Project Moon (mainly Limbus Company atm) \
 ✦ Baldur's Gate 3 / D&D in general \
+✦ Fallen London \
 ✦ Crypt of the Necrodancer/Cadence of Hyrule \
 ✦ Spiritfarer \
 ✦ Rain World \
