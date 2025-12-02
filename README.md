@@ -79,8 +79,8 @@ he will not find the same clemency within him for my absolution. ❞ </b></i> \
 ✦ Just dont be creepy or something and we're fine \
 ✦ We don't do serious RP on the game, but we Will commit to the character bit as desired \
 ✦ We freely hide people, no DNI list other than the basic shit and stuff below \
-✦ If you still actively engage with Harry Potter or JKR, we request no cosplays or fans of it interact. System introjects/fictives are completely ok \
-✦ Don't bring syscourse to us we don't care \
+✦ If you still actively engage with Harry Potter/JKR or Vivzipop's creations we request no cosplays or fans of it interact. System introjects/fictives are completely ok \
+✦ Don't bring syscourse to us we don't care
 
   ┏━━━━━━━━━━━༻❁༺━━━━━━━━━━━┓ \
 **Graphic Credits** \
