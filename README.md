@@ -90,4 +90,7 @@ he will not find the same clemency within him for my absolution. ❞ </b></i> \
 <img width="500px" src="https://file.garden/ZRW3jvKULjLI59UB/Github%20decor/thank"> \
 Art is by us!
 
+We are disabled and unemployed. If you wanted to, feel free to donate a dollar or commission us. Relevant links for details are listed in our [Carrd](https://little-ghost.carrd.co/#commissions)
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/H2H531IUM)
+
 </div>
