@@ -27,7 +27,7 @@ Names that we accept: \
 ✦ The name of the character / cosplay we're sitting in ✦ \
 <b>{!} Please call anyone with [FICT] in their name by the name written/ask for names! Those are fictives! {!}</b> \
 ∘₊✧────────────✧₊∘ \
-✦ They/Them ✦ \
+✦ They/It/Neos ✦ \
 ∘₊✧────────────✧₊∘ \
 Limbus sourcemates please do interact, Sancho and Outis are happy to meet others!
 
