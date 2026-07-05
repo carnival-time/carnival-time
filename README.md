@@ -9,7 +9,9 @@ We are disabled and unemployed. If you wanted to, feel free to donate a dollar o
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/H2H531IUM)
 
-<h3 align="center">[Happy Artfight!](https://artfight.net/~Little-Ghost)</h3>
+**Happy Artfight!**
+
+https://artfight.net/~Little-Ghost
 
 <p> <img src="https://file.garden/ZRW3jvKULjLI59UB/Github%20decor/banner"> </p>
   
